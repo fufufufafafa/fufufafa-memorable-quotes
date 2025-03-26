@@ -223,3 +223,67 @@ https://web.archive.org/web/20250323173947/https://www.kaskus.co.id/show_post/53
 ```
 https://web.archive.org/web/20250323172447/https://www.kaskus.co.id/show_post/5301d3dff9ca17c1598b45b5 
 ```
+
+##  029. Mahfud md jadi gila ya sekarang
+
+![029](img/029.png)
+
+```
+https://web.archive.org/web/20250323173856/https://www.kaskus.co.id/show_post/53acc324a4cb178e7f8b45a5
+```
+
+##  030. Mampus lo   
+
+![030](img/030.png)
+
+```
+https://web.archive.org/web/20250323171143/https://www.kaskus.co.id/show_post/5a976d121854f718128b4569
+```
+
+##  031. mau dibawa kemana dagu ini
+
+![031](img/031.png)
+
+```
+https://web.archive.org/web/20250323171143/https://www.kaskus.co.id/show_post/5397e89bc807e7841d8b4578
+```
+
+##  032. Mau marathon aja sampe luar negeri 
+
+![032](img/032.png)
+
+```
+https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/5a83ed2496bde660688b4567
+```
+
+##  033. Mbahmu cawapres 
+
+![033](img/033.png)
+
+```
+https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/59785c4e1ee5df51758b4567
+```
+
+##  034. menurut kalian lucu ya? 
+
+![034](img/034.png)
+
+```
+https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/5396b833148b463d0a8b4703
+```
+
+##  035. Nangis aja di pojokan 
+
+![035](img/035.png)
+
+```
+https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/5b6d01055a516319798b4567
+```
+
+##  036. Nangis ya? Bergetar gak bibirnya?    
+
+![036](img/036.png)
+
+```
+https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/5a8b86ad9e7404e3768b4569
+```
