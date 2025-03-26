@@ -367,3 +367,6 @@ https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/59
 ```
 https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/5a92c26c507410877a8b4567
 ```
+
+## Disclaimer
+All the information on this repository - https://github.com/fufufufafafa/fufufafa-memorable-quotes - is published in good faith and for general information purpose only. Any action you take upon the information you find on this repository, is strictly at your own risk. Author will not be liable for any losses and/or damages in connection with the use of information provided in here.
