@@ -95,3 +95,67 @@ https://web.archive.org/web/20240830014714/https://www.kaskus.co.id/show_post/5c
 ```
 https://web.archive.org/web/20250323170223/https://www.kaskus.co.id/show_post/574c0a91529a450c4c8b4567
 ```
+
+##  013. Emang ngaruh?     
+
+![013](img/013.png)
+
+```
+https://web.archive.org/web/20250323170227/https://www.kaskus.co.id/show_post/573e6f6d1cbfaa584a8b456a
+```
+
+##  014. Emangnya dia siapa? Raja?       
+
+![014](img/014.png)
+
+```
+https://web.archive.org/web/20250323171130/https://www.kaskus.co.id/show_post/5a87caacdac13e3a708b4567
+```
+
+##  015. Enak gundulmu      
+
+![015](img/015.png)
+
+```
+https://web.archive.org/web/20250323171107/https://www.kaskus.co.id/show_post/5a289b53d9d77054328b4567
+```
+
+##  016. Gak ada berita lain?  
+
+![016](img/016.png)
+
+```
+https://web.archive.org/web/20250323170141/https://www.kaskus.co.id/show_post/5756930198e31bd0138b456a
+```
+
+##  017. Gak pernah ngaca ya  
+
+![017](img/017.png)
+
+```
+https://web.archive.org/web/20240829093458/https://www.kaskus.co.id/show_post/5d932cb49a972e193513dd6f 
+```
+
+##  018. Gw baru nyadar kalo fotonya om wowo naik sapi 
+
+![018](img/018.png)
+
+```
+https://web.archive.org/web/20250323172531/https://www.kaskus.co.id/show_post/5370f3d7a2cb17c4268b4569
+```
+
+##  019. Hidup pirate bay!  
+
+![019](img/019.png)
+
+```
+https://web.archive.org/web/20250323173904/https://www.kaskus.co.id/show_post/53acd4ab5074105e468b45b7
+```
+
+##  020. Ini orang ngomongnya ngawur bgt ya
+
+![020](img/020.png)
+
+```
+https://web.archive.org/web/20250323173904/https://www.kaskus.co.id/show_post/5b6ee941de2cf2d5518b4567
+```
