@@ -335,3 +335,35 @@ https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/53
 ```
 https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/526f0fb9be29a0fa268b456d 
 ```
+
+##  043. Temennya om wowo kagak ada yg bener ya    
+
+![043](img/043.png)
+
+```
+https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/53acdefd96bde660588b45a8
+```
+
+##  044. Udah boleh sujud syukur blm nih?    
+
+![044](img/044.png)
+
+```
+https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/5c67bebfa2d195100175272e 
+```
+
+##  045. Udah dilarang msh ngeyel
+
+![045](img/045.png)
+
+```
+https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/593a4b80529a45fd0f8b456b
+```
+
+##  046. Yaelah ban permanen aja kali 
+
+![046](img/046.png)
+
+```
+https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/5a92c26c507410877a8b4567
+```
