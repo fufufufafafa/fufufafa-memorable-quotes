@@ -287,3 +287,51 @@ https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/5b
 ```
 https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/5a8b86ad9e7404e3768b4569
 ```
+
+##  037. Ngeri2 sedap tuh barang
+
+![037](img/037.png)
+
+```
+https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/53ad225f60e24baf4a8b45c6
+```
+
+##  038. Oh nasibmu om wowo 
+
+![038](img/038.png)
+
+```
+https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/53acd70b62088155648b45a6
+```
+
+##  039. Sampai mau bawa makanan sendiri
+
+![039](img/039.png)
+
+```
+https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/53b2af2ade2cf2964d8b479a
+```
+
+##  040. Saya sampe lupa lho kalo kita itu punya wakil presiden 
+
+![040](img/040.png)
+
+```
+https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/536c34e5c907e7e1528b47b5 
+```
+
+##  041. sini lo njing gw gak ngumpet sini gw ladenin
+
+![041](img/041.png)
+
+```
+https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/539b1ede5074101f388b4612 
+```
+
+##  042. sudah kapok di bully se indonesia       
+
+![042](img/042.png)
+
+```
+https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/526f0fb9be29a0fa268b456d 
+```
