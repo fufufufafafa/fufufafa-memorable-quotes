@@ -31,3 +31,35 @@ https://web.archive.org/web/20250323171659/https://www.kaskus.co.id/show_post/53
 ```
 https://web.archive.org/web/20250323170802/https://www.kaskus.co.id/show_post/5a2b65ad1cbfaa76528b4568
 ```
+
+##  005. Bayar
+
+![005](img/005.png)
+
+```
+https://web.archive.org/web/20250323173051/https://www.kaskus.co.id/show_post/5ce760a2eaab257b81272dba
+```
+
+##  006. Bacot
+
+![006](img/006.png)
+
+```
+https://web.archive.org/web/20250323171414/https://www.kaskus.co.id/show_post/5b407eb4d44f9f437b8b456a
+```
+
+##  007. Bajingan
+
+![007](img/007.png)
+
+```
+https://web.archive.org/web/20250323171420/https://www.kaskus.co.id/show_post/5a901975642eb64f538b4570
+```
+
+##  008. Menghibur Diri
+
+![008](img/008.png)
+
+```
+https://web.archive.org/web/20250323172425/https://www.kaskus.co.id/show_post/53968d6f138b4627448b4730
+```
