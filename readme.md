@@ -1,4 +1,4 @@
-# List of Fufufafa Kaskus Wisdom Quotes
+# List of Fufufafa Wisdom Quotes on Kaskus
 
 ##  001. (Puisi Semeru)
 
@@ -158,4 +158,68 @@ https://web.archive.org/web/20250323173904/https://www.kaskus.co.id/show_post/53
 
 ```
 https://web.archive.org/web/20250323173904/https://www.kaskus.co.id/show_post/5b6ee941de2cf2d5518b4567
+```
+
+##  021. Ini pada ngomongin bokep ya?   
+
+![021](img/021.png)
+
+```
+https://web.archive.org/web/20250323170758/https://www.kaskus.co.id/show_post/5a7ba4dcddd7700c598b4568
+```
+
+##  022. Iya deh iya 
+
+![022](img/022.png)
+
+```
+https://web.archive.org/web/20250323173954/https://www.kaskus.co.id/show_post/53b29edfa09a39485f8b4660
+```
+
+##  023. iye iye gw nangis sampe nangis darah ini liat kebodohan lo
+
+![023](img/023.png)
+
+```
+https://web.archive.org/web/20250323172419/https://www.kaskus.co.id/show_post/53972454d44f9fb52f8b457b
+```
+
+##  024. iye iye terserah lo mau ngomong apa 
+
+![024](img/024.png)
+
+```
+https://web.archive.org/web/20250323172442/https://www.kaskus.co.id/show_post/53968cb1ae07e78a698b4709
+```
+
+##  025. Jurnalis hebat imaginasinya melebihi jk rowling 
+
+![025](img/025.png)
+
+```
+https://web.archive.org/web/20250323172408/https://www.kaskus.co.id/show_post/5399ced30f8b4611218b45e4
+```
+
+##  026. kalo bisa dipersulit ya dibikin sulit  
+
+![026](img/026.png)
+
+```
+https://web.archive.org/web/20250323171654/https://www.kaskus.co.id/show_post/5268a176128b46102b000005 
+```
+
+##  027. Kalo gw jadi najwa, gw tampolin satu2 tuh orang2nya prabowo berisik banget coy  
+
+![027](img/027.png)
+
+```
+https://web.archive.org/web/20250323173947/https://www.kaskus.co.id/show_post/53b43941529a4545108b482f 
+```
+
+##  028. Luar biasa manusia yg satu ini 
+
+![028](img/028.png)
+
+```
+https://web.archive.org/web/20250323172447/https://www.kaskus.co.id/show_post/5301d3dff9ca17c1598b45b5 
 ```
