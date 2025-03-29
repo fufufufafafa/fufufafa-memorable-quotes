@@ -448,6 +448,118 @@ https://m.kaskus.co.id/show_post/5ce3cfacfacb95152858ed2f
 https://m.kaskus.co.id/show_post/5ce3cf3ea727683a683c7bbe
 ```
 
+##  057. Awas ntar kabur ke arab
+
+![057](img/057.png)
+
+```
+https://m.kaskus.co.id/show_post/5cde55486cc648190d31f5bc
+```
+
+##  058. Provinsi terbelakang
+
+![058](img/058.png)
+
+```
+https://m.kaskus.co.id/show_post/5cdce629f0bdb26928485eca
+```
+
+##  059. Kampret pada kabur
+
+![059](img/059.png)
+
+```
+https://m.kaskus.co.id/show_post/5cdce4dd018e0d755e7a228d
+```
+
+##  060. Lain kali gak usah diundang. Kagak punya prestasi
+
+![060](img/060.png)
+
+```
+https://m.kaskus.co.id/show_post/5cdce0ef337f93431111b369
+```
+
+##  061. Wkwk depresi
+
+![061](img/061.png)
+
+```
+https://m.kaskus.co.id/show_post/5cdce09609b5ca5f1c48b31f
+```
+
+##  062. Pasti pendukung prabowo 
+
+![062](img/062.png)
+
+```
+https://m.kaskus.co.id/show_post/5cdcdd6768cc95236d24917d
+```
+
+##  063. Kok gak dicekal ke luar negeri ya?
+
+![063](img/063.png)
+
+```
+https://m.kaskus.co.id/show_post/5cda97c6c8393a0fc87b04cb
+```
+
+##  064. Berisik lo botak
+
+![064](img/064.png)
+
+```
+https://m.kaskus.co.id/show_post/5cda967b68cc950a366f9f21
+```
+
+##  065. Wkwkwkwk sukurin kalah
+
+![065](img/065.png)
+
+```
+https://m.kaskus.co.id/show_post/5cda9634af7e9350ec102b0b
+```
+
+##  066. Wkwkkwwkk dilepeh
+
+![066](img/066.png)
+
+```
+https://m.kaskus.co.id/show_post/5cda9634af7e9350ec102b0b
+```
+
+##  067. Mampus wkwkwk
+
+![067](img/067.png)
+
+```
+https://m.kaskus.co.id/show_post/5cda32d82525c3337b414f91
+```
+
+##  068. Sudah kuduga 
+
+![068](img/068.png)
+
+```
+https://m.kaskus.co.id/show_post/5cd8e43ed43972066f0164b7
+```
+
+##  069. Mulai deh
+
+![069](img/069.png)
+
+```
+https://m.kaskus.co.id/show_post/5cd64157e83c7207fd321f4f
+```
+
+##  070. Liat tuh jidatnya. Mungkin jago nyundul kalo main futsal
+
+![070](img/070.png)
+
+```
+https://m.kaskus.co.id/show_post/5cd54c02b41d3046a561b74f
+```
+
 
 ## Disclaimer
 All the information on this repository - https://github.com/fufufufafafa/fufufafa-memorable-quotes - is published in good faith and for general information purpose only. Any action you take upon the information you find on this repository, is strictly at your own risk. Author will not be liable for any losses and/or damages in connection with the use of information provided in here.
