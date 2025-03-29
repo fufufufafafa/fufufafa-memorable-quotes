@@ -368,5 +368,86 @@ https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/59
 https://web.archive.org/web/20250323170755/https://www.kaskus.co.id/show_post/5a92c26c507410877a8b4567
 ```
 
+##  047. Dia pasti alumni 212
+
+![047](img/047.png)
+
+```
+https://m.kaskus.co.id/show_post/5dccc1f726377206a51d63ad
+```
+
+##  048. Gak pernah ngaca ya
+
+![048](img/048.png)
+
+```
+https://m.kaskus.co.id/show_post/5d932cb49a972e193513dd6f
+```
+
+##  049. Alumni 212 mana suaranya
+
+![049](img/049.png)
+
+```
+https://m.kaskus.co.id/show_post/5d8eda0b65b24d5900161161
+```
+
+##  050. Wowoland city of kamprets
+
+![050](img/050.png)
+
+```
+https://m.kaskus.co.id/show_post/5d6622f9f4d695421e0bd32d
+```
+
+##  051. Kasian lo wok
+
+![051](img/051.png)
+
+```
+https://m.kaskus.co.id/show_post/5cff7fce8d9b17170c39c61f
+```
+
+##  052. Jomblo ngenes
+
+![052](img/052.png)
+
+```
+https://m.kaskus.co.id/show_post/5cf0aede6df231351f4a76ce
+```
+
+##  053. Gak bawa bukti ya?
+
+![053](img/053.png)
+
+```
+https://m.kaskus.co.id/show_post/5ce8a43dc820847a77039a50
+```
+
+##  054. Manusia tolol
+
+![054](img/054.png)
+
+```
+https://m.kaskus.co.id/show_post/5ce3d02ff4d69501d1707ecf
+```
+
+##  055. Untung bs ketahuan
+
+![055](img/055.png)
+
+```
+https://m.kaskus.co.id/show_post/5ce3cfacfacb95152858ed2f
+```
+
+##  056. Wkwwkkwwk kapal oleng
+
+![056](img/056.png)
+
+```
+https://m.kaskus.co.id/show_post/5ce3cf3ea727683a683c7bbe
+```
+
+
 ## Disclaimer
 All the information on this repository - https://github.com/fufufufafafa/fufufafa-memorable-quotes - is published in good faith and for general information purpose only. Any action you take upon the information you find on this repository, is strictly at your own risk. Author will not be liable for any losses and/or damages in connection with the use of information provided in here.
