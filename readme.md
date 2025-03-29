@@ -722,6 +722,86 @@ https://m.kaskus.co.id/show_post/5cc67b75dbf7644f9d54806c
 https://m.kaskus.co.id/show_post/5cc67b41a2d1954236751c50
 ```
 
+##  091. Cari proyek
+
+![091](img/091.png)
+
+```
+https://m.kaskus.co.id/show_post/5cc67abe09b5ca231b7f493e
+```
+
+##  092. Suruh gabung avengers aja
+
+![092](img/092.png)
+
+```
+https://m.kaskus.co.id/show_post/5cc67a37263772037956a7aa
+```
+
+##  093. Bagus bgt jidatnya
+
+![093](img/093.png)
+
+```
+https://m.kaskus.co.id/show_post/5cc6782982d4950be50d3a1f
+```
+
+##  094. Wkkwwkkqqkkqk presiden jadi2an
+
+![094](img/094.png)
+
+```
+https://m.kaskus.co.id/show_post/5cbee75df0bdb22ec9594a5f
+```
+
+##  095. Survei kok diam2
+
+![095](img/095.png)
+
+```
+https://m.kaskus.co.id/show_post/5cb7e822a2d195096c5a6cdb
+```
+
+##  096. Pasti pendukungnya wowo
+
+![096](img/096.png)
+
+```
+https://m.kaskus.co.id/show_post/5cb599e5a2d19507925a506d
+```
+
+##  097. Betul. Kan ada koh hashim yg non muslim 
+
+![097](img/097.png)
+
+```
+https://m.kaskus.co.id/show_post/5caab17d2637727ead2a4f3f
+```
+
+##  098. Ngbaik lah. Ini lembaga survei dari mana
+
+![098](img/098.png)
+
+```
+https://m.kaskus.co.id/show_post/5ca77596a2d19549151cb5be
+```
+
+##  099. Ternyata pecatan dapat pensiun juga
+
+![099](img/099.png)
+
+```
+https://m.kaskus.co.id/show_post/5ca77549dbf764718151b65c
+```
+
+##  100. Coba dong share foto rumah mewahnya si said iqbal. Biar kampret pada mingkem 
+
+![100](img/100.png)
+
+```
+https://m.kaskus.co.id/show_post/5ca6dc54b84088685f4af8a9
+```
+
 
 ## Disclaimer
 All the information on this repository - https://github.com/fufufufafafa/fufufafa-memorable-quotes - is published in good faith and for general information purpose only. Any action you take upon the information you find on this repository, is strictly at your own risk. Author will not be liable for any losses and/or damages in connection with the use of information provided in here.
