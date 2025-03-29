@@ -10,6 +10,10 @@ There is a dedicated article at [Wikipedia](https://en.wikipedia.org/wiki/Fufufa
 ## Purpose
 This repository is storing Fufufafa's comments on Kaskus for the purpose of education and history preservation. 
 
+## List of Contents
+- [page 01](readme.md)
+- [page 02](readme-2.md)
+
 ##  001. (Puisi Semeru)
 
 ![001](img/001.png)
