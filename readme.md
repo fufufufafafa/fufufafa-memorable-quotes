@@ -1,5 +1,15 @@
 # List of Fufufafa Wisdom Quotes on Kaskus
 
+## Background
+![avatar](img/avatar-fufufafa.png)
+
+Fufufafa is an account at Kaskus (the most popular Indonesian forum) which is allegedly owned by Gibran Rakabuming Raka, Indonesian vice president. It stirred a lot of controversies especially since some of his comments consisting lots of funny but politically incorrect statements and completely different with his current vice president persona.
+
+There is a dedicated article at [Wikipedia](https://en.wikipedia.org/wiki/Fufufafa) that might give a more complete information.
+
+## Purpose
+This repository is storing Fufufafa's comments on Kaskus for the purpose of education and history preservation. 
+
 ##  001. (Puisi Semeru)
 
 ![001](img/001.png)
@@ -552,12 +562,164 @@ https://m.kaskus.co.id/show_post/5cd8e43ed43972066f0164b7
 https://m.kaskus.co.id/show_post/5cd64157e83c7207fd321f4f
 ```
 
-##  070. Liat tuh jidatnya. Mungkin jago nyundul kalo main futsal
+##  071. Ditikung lo wok
 
-![070](img/070.png)
+![071](img/071.png)
 
 ```
-https://m.kaskus.co.id/show_post/5cd54c02b41d3046a561b74f
+https://m.kaskus.co.id/show_post/5cd2789fb840883516598dd0
+```
+
+##  072. Wkwkwk gblk
+
+![072](img/072.png)
+
+```
+https://m.kaskus.co.id/show_post/5cd25628a2d19563e632c830
+```
+
+##  073. Sukurin
+
+![073](img/073.png)
+
+```
+https://m.kaskus.co.id/show_post/5cd2555510d2950afb044f9f
+```
+
+##  074. Wkwkwk 
+
+![074](img/074.png)
+
+```
+https://m.kaskus.co.id/show_post/5cd2536f9a972e77f5165b9d
+```
+
+##  075. Nasbung bikin onar 
+
+![075](img/075.png)
+
+```
+https://m.kaskus.co.id/show_post/5cd24b98337f9344ba0fa31c
+```
+
+##  076. Nasbung nih pasti
+
+![076](img/076.png)
+
+```
+https://m.kaskus.co.id/show_post/5cd15d2d68cc951ae4047e3f
+```
+
+##  077. Kasihan si dul
+
+![077](img/077.png)
+
+```
+https://m.kaskus.co.id/show_post/5cd15c17c8208457201850f0
+```
+
+##  078. Amin rais tuh
+
+![078](img/078.png)
+
+```
+https://m.kaskus.co.id/show_post/5cd15beed439725c9d5bc410
+```
+
+##  079. Wkwkwk sempak merah
+
+![079](img/079.png)
+
+```
+https://m.kaskus.co.id/show_post/5cccff3897751325b90887ae
+```
+
+##  080. Tofa caleg gagal
+
+![080](img/080.png)
+
+```
+https://m.kaskus.co.id/show_post/5cccf998c342bb5d757e6b8b
+```
+
+##  081. Parasit emang 
+
+![081](img/081.png)
+
+```
+https://m.kaskus.co.id/show_post/5cccf8b2c820843ebd7dbe8f
+```
+
+##  082. Kuping tipis
+
+![082](img/082.png)
+
+```
+https://m.kaskus.co.id/show_post/5cc9274d28c99164b1508b2f
+```
+
+##  083. Banjirnya lebih barokah karena pemimpin seiman
+
+![083](img/083.png)
+
+```
+https://m.kaskus.co.id/show_post/5cc6f28ae83c7229437f1c4d
+```
+
+##  084. Yg penting seiman
+
+![084](img/084.png)
+
+```
+https://m.kaskus.co.id/show_post/5cc6a179c9518b33be5c9961
+```
+
+##  085. Wkwkwk makin nyungsep
+
+![085](img/085.png)
+
+```
+https://m.kaskus.co.id/show_post/5cc6806609b5ca2c8962d841
+```
+
+##  086. Kalah lo wok
+
+![086](img/086.png)
+
+```
+https://m.kaskus.co.id/show_post/5cc68017f4d69510ef063617
+```
+
+##  087. Yg milih bodoh
+
+![087](img/087.png)
+
+```
+https://m.kaskus.co.id/show_post/5cc67e7288b3cb4e9d70708e
+```
+
+##  088. Yg penting seiman
+
+![088](img/088.png)
+
+```
+https://m.kaskus.co.id/show_post/5cc67e37349d0f10c93009d0
+```
+
+##  089. Kwkkwkwk rugi bandar
+
+![089](img/089.png)
+
+```
+https://m.kaskus.co.id/show_post/5cc67b75dbf7644f9d54806c
+```
+
+##  090. Banjir gpp yg penting gubernurnya seiman
+
+![090](img/090.png)
+
+```
+https://m.kaskus.co.id/show_post/5cc67b41a2d1954236751c50
 ```
 
 
