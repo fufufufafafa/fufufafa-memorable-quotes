@@ -245,3 +245,83 @@ https://m.kaskus.co.id/show_post/5c98ce3f4601cf38a76e98ec
 ```
 https://m.kaskus.co.id/show_post/5c98cdbdeaab252cd41f03a8
 ```
+
+##  131. Rel ganda bos
+
+![131](img/131.png)
+
+```
+https://m.kaskus.co.id/show_post/5c98ccedf4ae2f1a7d05fb8f
+```
+
+##  132. Adzan = waktu minum kopi
+
+![132](img/132.png)
+
+```
+https://m.kaskus.co.id/show_post/5c98cc56337f9351fd4974bf
+```
+
+##  133. Diem dikatain Marah dikatain Nasbung emang bodoh 
+
+![133](img/133.png)
+
+```
+https://m.kaskus.co.id/show_post/5c975226d4397236f52e9609
+```
+
+##  134. Di arab ada un gak 
+
+![134](img/134.png)
+
+```
+https://m.kaskus.co.id/show_post/5c944fe8facb95787454144e
+```
+
+##  135. Niatnya mau bikin rusuh 
+
+![135](img/135.png)
+
+```
+https://m.kaskus.co.id/show_post/5c9376d1a2d1951e37512b73
+```
+
+##  136. Hutang boleh asalkan seiman 
+
+![136](img/136.png)
+
+```
+https://m.kaskus.co.id/show_post/5c93738ce83c72780318da3b
+```
+
+##  137. Cicaknya kafir 
+
+![137](img/137.png)
+
+```
+https://m.kaskus.co.id/show_post/5c91d7497e3a7279682e301e
+```
+
+##  138. Mantap tuh bisa main PUBG sebulan penuh
+
+![138](img/138.png)
+
+```
+https://m.kaskus.co.id/show_post/5c91c301337f9330831b1ad3
+```
+
+##  139. Panasbung lapar 
+
+![139](img/139.png)
+
+```
+https://m.kaskus.co.id/show_post/5c90bf9028c99106956fb56f
+```
+
+##  140. Bagus gak nih
+
+![140](img/140.png)
+
+```
+https://m.kaskus.co.id/show_post/5c90be25c8208429462318df
+```
