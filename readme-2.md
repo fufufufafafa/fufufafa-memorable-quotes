@@ -123,5 +123,125 @@ https://m.kaskus.co.id/show_post/5c99fb71a72768224a0b5c6f
 ![115](img/115.png)
 
 ```
-https://m.kaskus.co.id/show_post/5c99fb71a72768224a0b5c6f
+https://m.kaskus.co.id/show_post/5c99fa469a972e6dc045b6ba
+```
+
+##  116. Bantuin bayar cicilan lah wok
+
+![116](img/116.png)
+
+```
+https://m.kaskus.co.id/show_post/5c99f77af4d695086a769420
+```
+
+##  117. Cepetan jadiin istri lo wo 
+
+![117](img/117.png)
+
+```
+https://m.kaskus.co.id/show_post/5c99f720facb952c632d431e
+```
+
+##  118. Bikin engas panasbung
+
+![118](img/118.png)
+
+```
+https://m.kaskus.co.id/show_post/5c99f6ec349d0f23080605d0
+```
+
+##  119. Wok, ini cewek lo gak lo tengokin wok? 
+
+![119](img/119.png)
+
+```
+https://m.kaskus.co.id/show_post/5c99f58968cc95145944f00f
+```
+
+##  120. Mantan mertua lo itu tong 
+
+![120](img/120.png)
+
+```
+https://m.kaskus.co.id/show_post/5c99f4e57414f55dfc56f88d
+```
+
+##  121. Remuk redam 
+
+![121](img/121.png)
+
+```
+https://m.kaskus.co.id/show_post/5c99f47968cc9575911c1f0f
+```
+
+##  122. Budaya arab ya?
+
+![122](img/122.png)
+
+```
+https://m.kaskus.co.id/show_post/5c99db377414f5337609ee7d
+```
+
+##  123. Pasti pendukung capres yg itu
+
+![123](img/123.png)
+
+```
+https://m.kaskus.co.id/show_post/5c99aadb10d295236e27d758
+```
+
+##  124. Rakyat gak makan mrt 
+
+![124](img/124.png)
+
+```
+https://m.kaskus.co.id/show_post/5c99a21b2637722b167210df
+```
+
+##  125. Aahhhsiappp
+
+![125](img/125.png)
+
+```
+https://m.kaskus.co.id/show_post/5c99955ad439722c550047ac
+```
+
+##  126. Sono minta bantuan prabowo
+
+![126](img/126.png)
+
+```
+https://m.kaskus.co.id/show_post/5c998c4f349d0f61b146f1e0
+```
+
+##  127. Harusnya dimahalin biar panasbung gak bs naik
+
+![127](img/127.png)
+
+```
+https://m.kaskus.co.id/show_post/5c98d17ba2d1955f36208598
+```
+
+##  128. Bukannya dari dulu selalu disumpah? Gblk!
+
+![128](img/128.png)
+
+```
+https://m.kaskus.co.id/show_post/5c98cf9f8d9b174ed900f187
+```
+
+##  129. Kwkwwkkw bodoh
+
+![129](img/129.png)
+
+```
+https://m.kaskus.co.id/show_post/5c98ce3f4601cf38a76e98ec
+```
+
+##  130. Kontribusinya wan abud apa
+
+![130](img/130.png)
+
+```
+https://m.kaskus.co.id/show_post/5c98cdbdeaab252cd41f03a8
 ```
