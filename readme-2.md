@@ -422,7 +422,7 @@ https://m.kaskus.co.id/show_post/5c8c624cc342bb36d22078db
 https://m.kaskus.co.id/show_post/5c8b22ad8012ae5ec449dceb
 ```
 
-##  153. Kampret teladanWkwkwk 
+##  153. Wkwkwk 
 ![153](img/153.png)
 
 ```
@@ -616,4 +616,144 @@ https://m.kaskus.co.id/show_post/5c63894c7414f518832c5707
 
 ```
 https://m.kaskus.co.id/show_post/5c5fa7dafacb957cba45afd0
+```
+
+##  181. Valentine no Poligami ayo 
+![181](img/181.png)
+
+```
+https://m.kaskus.co.id/show_post/5c5fa265b8408842ee61037e
+```
+
+##  182. Gpp, biar panasbung seneng
+![182](img/182.png)
+
+```
+https://m.kaskus.co.id/show_post/5c580f645cf6c46f291077b0
+```
+
+##  183. Antek asing yg sesungguhnya 
+![183](img/183.png)
+
+```
+https://m.kaskus.co.id/show_post/5c57f182337f937a87004fe7
+```
+
+##  184. Rupiah kuat pada diem Rupiah lemah pada bodoh2in jokowi
+![184](img/184.png)
+
+```
+https://m.kaskus.co.id/show_post/5c52ba18a727685a2462f3ef
+```
+
+##  185. Fun fact: rocky ini 52 tahun dan blm nikah 
+![185](img/185.png)
+
+```
+https://m.kaskus.co.id/show_post/5c4da227facb953ec44f893d
+```
+
+##  186. Jadi mundur gak neh?
+![186](img/186.png)
+
+```
+https://m.kaskus.co.id/show_post/5c3ff4b4a2d1952dfc03c3dd
+```
+
+##  187. Wkwkkkw si bencong di kubu kampret
+![187](img/187.png)
+
+```
+https://m.kaskus.co.id/show_post/5c3eb1bdaf7e931aca28faad
+```
+
+##  188. Kalah sama anak sd
+![188](img/188.png)
+
+```
+https://m.kaskus.co.id/show_post/5c3dbed68d9b17153f7075df
+```
+
+##  189. Bantu doa sudah lebih dari cukup
+![189](img/189.png)
+
+```
+https://m.kaskus.co.id/show_post/5c2cb15f68cc95661832970d
+```
+
+##  190. Indonesia lebih islami
+![190](img/190.png)
+
+```
+https://m.kaskus.co.id/show_post/5c29c18282d495543351b79a
+```
+
+##  191. Wowo suruh ikut 
+![191](img/191.png)
+
+```
+https://m.kaskus.co.id/show_post/5c11f500c820845e4d41570f
+```
+
+##  192. Satu kampret terciduk 
+![192](img/192.png)
+
+```
+https://m.kaskus.co.id/show_post/5c11c67882d495510a4e8d80
+```
+
+##  193. Kampret gak perlu lewat tol. Roda dua mana boleh lewat tol 
+![193](img/193.png)
+
+```
+https://m.kaskus.co.id/show_post/5c108cffe83c72670b60f69b
+```
+
+##  194. Kampret bodoh
+![194](img/194.png)
+
+```
+https://m.kaskus.co.id/show_post/5c107ba082d4952e1c70de61
+```
+
+##  195. Ini termasuk pinter apa bodoh
+![195](img/195.png)
+
+```
+https://m.kaskus.co.id/show_post/5c0352aa5c77986f0a8b4568
+```
+
+##  196. Aceh gitu loh
+![196](img/196.png)
+
+```
+https://m.kaskus.co.id/show_post/5c020a2a162ec2c5488b4569
+```
+
+##  197. Panasbung delusi
+![197](img/197.png)
+
+```
+https://m.kaskus.co.id/show_post/5be658f0dc06bdaf0e8b456b
+```
+
+##  198. Dimaafkan aja Kalo jokowi yg salah baru kita bodoh2in 
+![198](img/198.png)
+
+```
+https://m.kaskus.co.id/show_post/5be6583f947868e5268b4569
+```
+
+##  199. Demo raja salman
+![199](img/199.png)
+
+```
+https://m.kaskus.co.id/show_post/5be2727560e24b27068b4567
+```
+
+##  200. Coba dicek itu yg gak divaksin pendukung prabowo bukan?
+![200](img/200.png)
+
+```
+https://m.kaskus.co.id/show_post/5bdabc9b529a453b618b4568
 ```
