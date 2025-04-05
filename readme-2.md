@@ -477,3 +477,143 @@ https://m.kaskus.co.id/show_post/5c888c9188b3cb31731957fd
 ```
 https://m.kaskus.co.id/show_post/5c8888c4337f93359c6776a0
 ```
+
+##  161. Pengamanan kok keliatannya pgn ikut salaman 
+![161](img/161.png)
+
+```
+https://m.kaskus.co.id/show_post/5c8787017e3a724d11197d3f
+```
+
+##  162. Coba ditanya itu pendukung capres mana 
+![162](img/162.png)
+
+```
+https://m.kaskus.co.id/show_post/5c73ae4afacb952bcd46e4bd
+```
+
+##  163. Nyindir pks?
+![163](img/163.png)
+
+```
+https://m.kaskus.co.id/show_post/5c6e1b7cc8393a4b810cb71c
+```
+
+##  164. Coba tuh fpi suruh incip 
+![164](img/164.png)
+
+```
+https://m.kaskus.co.id/show_post/5c6e1561facb955d855b2a70
+```
+
+##  165. Panasbung pada protes gak tuh?
+![165](img/165.png)
+
+```
+https://m.kaskus.co.id/show_post/5c6cc426337f93328e1080ef
+```
+
+##  166. Banci 
+![166](img/166.png)
+
+```
+https://m.kaskus.co.id/show_post/5c6b7e27365c4f7f850dea8f
+```
+
+##  167. Warisan mertua 
+![167](img/167.png)
+
+```
+https://m.kaskus.co.id/show_post/5c6b7b64c9518b3e7e3fc640
+```
+
+##  168. Pasti kesepian 
+![168](img/168.png)
+
+```
+https://m.kaskus.co.id/show_post/5c6b7af0136970625b3ce0f0
+```
+
+##  169. Tukang ngeles
+![169](img/169.png)
+
+```
+https://m.kaskus.co.id/show_post/5c6b71dd0577a91437482b9d
+```
+
+##  170. Ngeles aja lu tong
+![170](img/170.png)
+
+```
+https://m.kaskus.co.id/show_post/5c6a1962337f932fa402285a
+```
+
+##  171. Menteri pecatan dan cagub gagal
+![171](img/171.png)
+
+```
+https://m.kaskus.co.id/show_post/5c69137665b24d576235509f
+```
+
+##  172. Takut disuruh jadi imam
+![172](img/172.png)
+
+```
+https://m.kaskus.co.id/show_post/5c68d9185cf6c450ff79006e
+```
+
+##  173. Mantap Auto sujud syukur nih
+![173](img/173.png)
+
+```
+https://m.kaskus.co.id/show_post/5c67c236d439722bd06344d0
+```
+
+##  174. Takut disuruh ngaji
+![174](img/174.png)
+
+```
+https://m.kaskus.co.id/show_post/5c67c1692525c33b77743ece
+```
+
+##  175. Udah boleh sujud syukur blm nih? 
+![175](img/175.png)
+
+```
+https://m.kaskus.co.id/show_post/5c67bebfa2d195100175272e
+```
+
+##  176. Cucok cyn!!!
+![176](img/176.png)
+
+```
+https://m.kaskus.co.id/show_post/5c66aa8e349d0f51ed17157f
+```
+
+##  177. bodoh cari panggung
+![177](img/177.png)
+
+```
+https://m.kaskus.co.id/show_post/5c64da2beaab2574037134f9
+```
+
+##  178. Salah juga lo belain
+![178](img/178.png)
+
+```
+https://m.kaskus.co.id/show_post/5c638ccde83c720ff47d789f
+```
+
+##  179. Bodo amat
+![179](img/179.png)
+
+```
+https://m.kaskus.co.id/show_post/5c63894c7414f518832c5707
+```
+
+##  180. Kalo maling biasanya kampret
+![180](img/180.png)
+
+```
+https://m.kaskus.co.id/show_post/5c5fa7dafacb957cba45afd0
+```
