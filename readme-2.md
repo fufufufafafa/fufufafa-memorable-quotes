@@ -325,3 +325,155 @@ https://m.kaskus.co.id/show_post/5c90bf9028c99106956fb56f
 ```
 https://m.kaskus.co.id/show_post/5c90be25c8208429462318df
 ```
+
+##  141. Cipit ya
+
+![141](img/141.png)
+
+```
+https://m.kaskus.co.id/show_post/5c90bd6782d495120c65b6f7
+```
+
+##  142. Yg bikin dan baca kontennya pasti pendukung capres yg itu
+
+![142](img/142.png)
+
+```
+https://m.kaskus.co.id/show_post/5c90bbe52f568d07ec7cce41
+```
+
+##  143. Si culun lagi
+
+![143](img/143.png)
+
+```
+https://m.kaskus.co.id/show_post/5c90ba9cf4d695152140ae59
+```
+
+##  144. Suruh bobol atm dulu biar bisa nginap di hotel
+
+![144](img/144.png)
+
+```
+https://m.kaskus.co.id/show_post/5c90ba08f4d69519391f0c2d
+```
+
+##  145. Ngentiauw nih gengnya wowo gak bantuin sm sekali
+
+![145](img/145.png)
+
+```
+https://m.kaskus.co.id/show_post/5c9070735cf6c46e5c2e9a3f
+```
+
+##  146. Bagus lah
+
+![146](img/146.png)
+
+```
+https://m.kaskus.co.id/show_post/5c906f52365c4f7a4843a840
+```
+
+##  147. Tolong tanyain itu si rocky kenapa blm nikah 
+
+![147](img/147.png)
+
+```
+https://m.kaskus.co.id/show_post/5c8f54f510d2951e9141e0c0
+```
+
+##  148. Si culun ini suruh cium tangan luhut dulu 
+
+![148](img/148.png)
+
+```
+https://m.kaskus.co.id/show_post/5c8f531768cc95135c39a8d8
+```
+
+##  149. Langsung tidak dianggap saudara
+
+![149](img/149.png)
+
+```
+https://m.kaskus.co.id/show_post/5c8f48a5337f934efe13280f
+```
+
+##  150. Wkwkwkw bodoh bgt
+
+![150](img/150.png)
+
+```
+https://m.kaskus.co.id/show_post/5c8c6a27365c4f0d921470b1
+```
+
+##  151. Ini lah pendukung capres 02 Pengennya ngentiauw melulu
+
+![151](img/151.png)
+
+```
+https://m.kaskus.co.id/show_post/5c8c624cc342bb36d22078db
+```
+
+##  152. Kampret teladan
+
+![152](img/152.png)
+
+```
+https://m.kaskus.co.id/show_post/5c8b22ad8012ae5ec449dceb
+```
+
+##  153. Kampret teladanWkwkwk 
+![153](img/153.png)
+
+```
+https://m.kaskus.co.id/show_post/5c8b210bfacb953e3832e288
+```
+
+##  154. Rakyat gak makan stadium 
+![154](img/154.png)
+
+```
+https://m.kaskus.co.id/show_post/5c8b1de410d295664f27a370
+```
+
+##  155. Berpikir positif aja. Mungkin mau batalin puasa 
+![155](img/155.png)
+
+```
+https://m.kaskus.co.id/show_post/5c8b196168cc951fe1102eee
+```
+
+##  156. Jabar dan sumbar sarang kampret
+![156](img/156.png)
+
+```
+https://m.kaskus.co.id/show_post/5c8b14f3018e0d780c336a9f
+```
+
+##  157. Coba ditanya dia pendukung capres mana
+![157](img/157.png)
+
+```
+https://m.kaskus.co.id/show_post/5c8b1244f0bdb22f4c6117ff
+```
+
+##  158. Ayo sujud syukur
+![158](img/158.png)
+
+```
+https://m.kaskus.co.id/show_post/5c88914c10d2955d4e125230
+```
+
+##  159. Pasti ini pendukung capres yg itu
+![159](img/159.png)
+
+```
+https://m.kaskus.co.id/show_post/5c888c9188b3cb31731957fd
+```
+
+##  160. Saya seneng kalo ada berita kayak gini
+![160](img/160.png)
+
+```
+https://m.kaskus.co.id/show_post/5c8888c4337f93359c6776a0
+```
