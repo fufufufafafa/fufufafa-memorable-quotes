@@ -19,8 +19,10 @@ This repository is storing Fufufafa's comments on Kaskus for the purpose of educ
 ## Raw Files
 Text-only data are accessible under the `raw` folder.
 
-## Developed App
+## Developed Apps
 - [fufufafa Daily Quotes](https://fufufafa-dailyquotes.vercel.app/) by Sem1colon;
+- [Your favorite fufufafa's Quotes](https://fufufafa.foo/) by fufufafa-foo;
+
 
 ## Disclaimer
 All the information on this repository - https://github.com/fufufufafafa/fufufafa-memorable-quotes - is published in good faith and for general information purpose only. Any action you take upon the information you find on this repository, is strictly at your own risk. Author will not be liable for any losses and/or damages in connection with the use of information provided in here.
