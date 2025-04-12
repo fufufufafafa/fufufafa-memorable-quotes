@@ -21,7 +21,7 @@ Text-only data are accessible under the `raw` folder.
 
 ## Developed Apps
 - [fufufafa Daily Quotes](https://fufufafa-dailyquotes.vercel.app/) by Sem1colon;
-- [Your favorite fufufafa's Quotes](https://fufufafa.foo/) by fufufafa-foo;
+- [Your favorite fufufafa's Quotes](https://fufufafa.foo/) by fufufafa-foo
 
 
 ## Disclaimer
