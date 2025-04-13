@@ -5,6 +5,9 @@
 - [page 01](readme-1.md)
 - [page 02](readme-2.md)
 - [page 03](readme-3.md)
+- [page 04](readme-4.md)
+- [page 05](readme-5.md)
+- [page 06](readme-6.md)
 
 
 ##  201. Kampanye sambil tidur

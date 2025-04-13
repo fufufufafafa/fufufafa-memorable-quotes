@@ -15,6 +15,9 @@ This repository is storing Fufufafa's comments on Kaskus for the purpose of educ
 - [page 01](readme-1.md)
 - [page 02](readme-2.md)
 - [page 03](readme-3.md)
+- [page 04](readme-4.md)
+- [page 05](readme-5.md)
+- [page 06](readme-6.md)
 
 ## Raw Files
 Text-only data are accessible under the `raw` folder.
