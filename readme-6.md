@@ -8,6 +8,8 @@
 - [page 04](readme-4.md)
 - [page 05](readme-5.md)
 - [page 06](readme-6.md)
+- [page 07](readme-7.md)
+
 
 ## 501. Ini ulama palsu tukang tipu
 ![501](img/501.png)

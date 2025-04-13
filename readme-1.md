@@ -8,6 +8,7 @@
 - [page 04](readme-4.md)
 - [page 05](readme-5.md)
 - [page 06](readme-6.md)
+- [page 07](readme-7.md)
 
 
 ##  001. (Puisi Semeru)
