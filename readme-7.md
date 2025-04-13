@@ -9,7 +9,12 @@
 - [page 05](readme-5.md)
 - [page 06](readme-6.md)
 - [page 07](readme-7.md)
-
+- [page 08](readme-8.md)
+- [page 09](readme-9.md)
+- [page 10](readme-10.md)
+- [page 11](readme-11.md)
+- [page 12](readme-12.md)
+- [page 13](readme-13.md)
 
 ## 601. Kerja keras ya om ucril
 ![601](img/601.png)
