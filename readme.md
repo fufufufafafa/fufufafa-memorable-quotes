@@ -1,14 +1,14 @@
-# List of Fufufafa Wisdom Quotes on Kaskus
+<h1 align="center">List of Fufufafa wisdom quotes on Kaskus</h1>
+
+> [!WARNING]  
+> All the information on this repository - https://github.com/fufufufafafa/fufufafa-memorable-quotes - is published in good faith and for general information purpose only. Any action you take upon the information you find on this repository, is strictly at your own risk. Author will not be liable for any losses and/or damages in connection with the use of information provided in here.
 
 ## Background
 ![avatar](img/avatar-fufufafa.png)
 
-Fufufafa is an account at Kaskus (the most popular Indonesian forum) which is allegedly owned by Gibran Rakabuming Raka, Indonesian vice president. It stirred a lot of controversies especially since some of his comments consisting lots of funny but politically incorrect statements and completely different with his current vice president persona.
+Fufufafa, the Kaskus legend, allegedly the digital side hustle of Indonesia’s Vice President, Gibran Rakabuming Raka. This account was dropping takes so reckless they could ignite a national debate, funny, politically incorrect, and about as refined as instant noodles at 3 AM. The best part? If true, this man went from ‘*unfiltered meme machine*’ to ‘*respectable statesman*’ in record time. If there’s ever a guidebook on "*How to Clean Up Your Internet Past Before Running for Office*," this saga deserves its own chapter.
 
 There is a dedicated article at [Wikipedia](https://en.wikipedia.org/wiki/Fufufafa) that might give a more complete information.
-
-## Purpose
-This repository is storing Fufufafa's comments on Kaskus for the purpose of education and history preservation. 
 
 ## List of Contents
 - [index](readme.md)
@@ -26,13 +26,14 @@ This repository is storing Fufufafa's comments on Kaskus for the purpose of educ
 - [page 12](readme-12.md)
 - [page 13](readme-13.md)
 
-## Raw Files
-Text-only data are accessible under the `raw` folder.
+## Reason
+This repository is preserving Fufufafa’s Kaskus comments for educational and historical purposes, because what better way to document internet chaos than treating it like a museum exhibit?
 
-## Developed Apps
-- [fufufafa Daily Quotes](https://fufufafa-dailyquotes.vercel.app/) by Sem1colon;
+___
+
+### Raw Files
+Text-only data are accessible under the [`raw`](/raw/) folder.
+
+### Developed Apps
+- [fufufafa Daily Quotes](https://fufufafa-dailyquotes.vercel.app/) by Sem1colon,
 - [Your favorite fufufafa's Quotes](https://fufufafa.foo/) by fufufafa-foo
-
-
-## Disclaimer
-All the information on this repository - https://github.com/fufufufafafa/fufufafa-memorable-quotes - is published in good faith and for general information purpose only. Any action you take upon the information you find on this repository, is strictly at your own risk. Author will not be liable for any losses and/or damages in connection with the use of information provided in here.
